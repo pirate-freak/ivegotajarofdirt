@@ -1,5 +1,3 @@
-> [!NOTE]
-> I AM IN TREATMENT FOR BECOMING ONE PERSON AGAIN ( I AM DAIGNOSED WITH 0SDD-1B ) AND WOULD LIKE THAT YOU DON'T BRING MY SYSTEM UP TY !
 <p align="center">
  <img width="1500" height="150" alt="tumblr_ff060461859c3b187a8e0c7a91984de7_548ef5d8_1280" src="https://github.com/user-attachments/assets/9dba2387-6ff0-4977-a0b9-1acefe6d8bfc"/>
  <img width="600" height="20" alt="tumblr_2e1f69cc40b1193b54d11a077fb2c660_43c30a5a_640" src="https://github.com/user-attachments/assets/a3655af8-d1e9-49f7-998d-5b991408b529" />
