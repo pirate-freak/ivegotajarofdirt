@@ -1,4 +1,3 @@
-<title>savvy?</title>
 <p align="center">
  <img width="640" height="100" alt="POTC DIVIDER" src="https://github.com/user-attachments/assets/6eb5c77f-cb0c-45a5-a843-065a5a536348" />
  <img width="398" height="28" alt="pirate" src="https://github.com/user-attachments/assets/73b7d592-e185-4728-9df0-1eff77af49ed" />
