@@ -30,7 +30,7 @@
  <img width="150" height="20" alt="tumblr_4c8f0b6ff19f31e56def6caf44305466_d1493bc6_250" src="https://github.com/user-attachments/assets/ab4dc349-93d4-4da9-b569-f4a8a22c188b" />
  <img width="300" height="40" alt="tumblr_39ea470a7ce54fbe8f585b62da80ca1a_00ed3632_400" src="https://github.com/user-attachments/assets/624c02c1-68cd-490e-9a36-1b3c3a65cac7" /><br/>
   <br/>
-    ⑅⠀⠀⠀<a href="https://piratefreak.carrd.co">CARRX</a> . <a href="https://piratefreak.straw.page/">SP</a> . <a href="https://t0xcitepirxte.atabook.org/">ATA</a> . <a href="https://pronouns.cc/@t0xcitepirxte">KINS</a>⠀⠀!⠀⠀꒱꒱<br/>
+    ⑅⠀⠀⠀<a href="https://piratefreak.carrd.co">CARRD</a> . <a href="https://piratefreak.straw.page/">SP</a> . <a href="https://t0xcitepirxte.atabook.org/">ATA</a> . <a href="https://pronouns.cc/@t0xcitepirxte">KINS</a>⠀⠀!⠀⠀꒱꒱<br/>
   <br/>
  <img width="99" height="56" alt="tumblr_52fbcbbfb1a3681e5b1bc8b95dd57034_b61c3bab_100" src="https://github.com/user-attachments/assets/0ca00444-58d6-487c-b4b8-44992e09326d" />
  <img width="99" height="55" alt="tumblr_17c5c8b1632208202ba1f84dbd9c0aab_77b324dc_100" src="https://github.com/user-attachments/assets/0d3576fe-82f4-45f3-9709-8260fb09ca8e" />
