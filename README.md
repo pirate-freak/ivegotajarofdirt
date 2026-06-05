@@ -14,7 +14,7 @@
   .ᐟ  𐂯<img width="20" height="20" alt="tumblr_89f4006c030ed43da49141271b202687_198120af_75" src="https://github.com/user-attachments/assets/43abe7ea-a10c-4231-9d3b-92ac87750874" /><br/>
 <br/>
  <img width="20" height="20" alt="tumblr_fd2a8aa994e6ba19b7c03b5b18abcddc_c5167738_75" src="https://github.com/user-attachments/assets/574d9f98-761f-45f5-b050-8c48c44fb873" />  
-   ◜　 ♡ॱ𓏽　　17 . LEO　　₎₎<br/>
+   ◜　 ♡ॱ𓏽　　17 . INTJ　　₎₎<br/>
   <br/>
  <img src="https://github.com/user-attachments/assets/70c97058-c96d-4fd5-9f07-eab51dfde66a" />
  <img src="https://github.com/user-attachments/assets/96cfa6cc-98e6-496b-af2d-dc567c0e6986" />
@@ -24,7 +24,7 @@
  <img width="20" height="20" alt="tumblr_2c977b7363ffeecd297cf39bd6d35b1b_011d817a_75" src="https://github.com/user-attachments/assets/409d1648-129a-453d-ae70-595797f33a00" /><br/>
   <br/>
  <img width="20" height="20" alt="tumblr_5c4ccbc14a018eea7ea770a395edd1b1_e1056025_75" src="https://github.com/user-attachments/assets/8e054d0a-b300-46f4-b430-d667bf1cbf4a" />
-     𝅄ㅤ ꒰  autism . ddd  ꒱  ⏤ㅤ  ۪ ୧<br/>
+     𝅄ㅤ ꒰  AUTISM . DDD  ꒱  ⏤ㅤ  ۪ ୧<br/>
   <br/>
 <img width="300" height="40" alt="tumblr_94b8cef5554b3090be34ca68a4006e1d_c53c7ec6_400" src="https://github.com/user-attachments/assets/6597defb-1e74-4367-b4da-987ac9d96a1c" />
  <img width="150" height="20" alt="tumblr_4c8f0b6ff19f31e56def6caf44305466_d1493bc6_250" src="https://github.com/user-attachments/assets/ab4dc349-93d4-4da9-b569-f4a8a22c188b" />
