@@ -8,7 +8,7 @@
  <img width="250" height="33" alt="tumblr_a9f31049601eecee520168bfa36a90b8_aadb99c1_250" src="https://github.com/user-attachments/assets/a2b089cc-9dcc-4e40-b65f-7a46a3f6842f" /><img width="250" height="33" alt="tumblr_531fb702940cdfd02d69eeb5cf4fe789_3fbeec92_250" src="https://github.com/user-attachments/assets/19a3d66b-4c9c-48ba-99f7-6cc744be6a9f" />
 <br/>
   <br/>
- <img width="20" height="20" alt="tumblr_2958bc476a6be2abf94116ab18baf8ee_ec133104_75" src="https://github.com/user-attachments/assets/9dc6025f-3f63-4fa9-80f9-1cf4563d5afd" /> ﹒⌗﹒JACK . CUTLER ( CAPTAIN JACK SPARROW + LORD CUTLER BECKETT FICTKIN ) ⸝⸝<br/>
+ <img width="20" height="20" alt="tumblr_2958bc476a6be2abf94116ab18baf8ee_ec133104_75" src="https://github.com/user-attachments/assets/9dc6025f-3f63-4fa9-80f9-1cf4563d5afd" /> ﹒⌗﹒JACK . CUTLER ( CAPTAIN JACK SPARROW + LORD CUTLER BECKETT FICTKIN . DBLS DNI ) ⸝⸝<br/>
   <br/>
   𐔌   ᛝ   HE / HIM . THEY / THEM
   .ᐟ  𐂯<img width="20" height="20" alt="tumblr_89f4006c030ed43da49141271b202687_198120af_75" src="https://github.com/user-attachments/assets/43abe7ea-a10c-4231-9d3b-92ac87750874" /><br/>
